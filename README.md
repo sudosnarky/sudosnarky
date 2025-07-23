@@ -8,7 +8,7 @@
     💡 Passionate about tech, human behavior, and product thinking
     🌍 Started & grew 2 businesses—learned more from failures than successes
     💻 Freelancer for 4+ years, solving problems across web & product spaces
-    🏆 Held multiple leadership roles (incl. Student Gov. President for 3 terms)
+    🏆 Held multiple leadership roles
 
 🛠️ What I Love Building
 
